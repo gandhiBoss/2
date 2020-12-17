@@ -1,0 +1,1 @@
+mada jinsei nagai desho
